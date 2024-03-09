@@ -2,7 +2,6 @@
 
 - 🌱 I’m currently learning **Java** & **Spring Boot**
 - 😄 Pronouns: she/her
-- 📫 How to reach me: ingridmichel.work@gmail.com
 - ⚡ I have a degree in **East Asian Studies** and Japanese Language
  
   ###### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Universitat Autònoma de Barcelona & Waseda University (Tokyo)*
