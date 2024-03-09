@@ -4,7 +4,7 @@
 - 😄 Pronouns: she/her
 - ⚡ I have a degree in **East Asian Studies** and Japanese Language
  
-  ###### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Universitat Autònoma de Barcelona & Waseda University (Tokyo)*
+  ###### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Universitat Autònoma de Barcelona & Waseda University 早稲田大学 (Tokyo)*
 - 💞️ Fun fact: I love plants and I lived in Japan for a year :)
 - 💬 Languages: English, Spanish, Catalan, Japanese (N3) & beginner Chinese
 
