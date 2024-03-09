@@ -6,7 +6,7 @@
  
   ###### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Universitat Autònoma de Barcelona & Waseda University (Tokyo)*
 - 💞️ Fun fact: I love plants and I lived in Japan for a year :)
-- 💬 Languages: 🇬🇧🇪🇸🇯🇵🇨🇳
+- 💬 Languages: English, Spanish, Catalan, Japanese (N3) & beginner Chinese
 
 <!---
 I-Michel/I-Michel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
